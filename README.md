@@ -19,7 +19,7 @@ el sueño de cualquier sirena,<br/>
 que nunca podría abordar.<br/>
 <br/>
 Si el árbol me hace bailar...<br/>
-Si fruto me hará cantar?..<br/>
+Su fruto me hará cantar?..<br/>
 A que sabrá?...<br/>
 Lo voy a probar!<br/>
 <br/>
