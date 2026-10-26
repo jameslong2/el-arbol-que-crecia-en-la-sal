@@ -4,7 +4,7 @@ De ese extraño talento nací,<br/>
 un virtuoso explorador musical.<br/>
 <br/>
 Todo el día escuchando música,<br/>
-hasta que un día la intente tocar.<br/>
+hasta que un día la quise tocar.<br/>
 <br/>
 Rompi el instrumento,<br/> con mi brutalidad,<br/>
 decidí darle luto,<br/>
